@@ -1,1 +1,1 @@
-https://Icannotdosomething.github.io/rsschool-cv/
+https://Icannotdosomething.github.io/rsschool-cv
